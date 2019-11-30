@@ -14,7 +14,7 @@ Wooden Rubber Ink Stamps, Notary, Translations, Colour Copy, Graphic Design, Vin
   
    နံနက် ၈ နာရီ မှ ည ၈ နာရီ အထိ (ပိတ်ရက်မရှိ)။
                 
-   ဖုန်း   >>   ၀၉ -၇၉ ၅၂၅၄၃၂၀      ၀၉ -၄၂၅၀၂၃၄၅၉      ၀၁-၂၄၀၈၅၈         
+   ဖုန်း   >>   ၀၉ -၇၉ ၅၂၅၄၃၂၀၊      ၀၉ -၄၂၅၀၂၃၄၅၉၊      ၀၁-၂၄၀၈၅၈။         
 
 အီးမေး  >>  myatdigitalcom6246@gmail.com       
 

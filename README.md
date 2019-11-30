@@ -1,4 +1,7 @@
-# MYAT - Digital Copy And Printing Services        
+# MYAT - Digital Copy And Printings Services      
+
+Wooden Rubber Ink Stamps, Notary, Translations, Colour Copy, Graphic Design, Vinyl Printings, Passport Photos.       
+
 
    မြတ် ကွန်ပျူတာတွင် နိုင်လင်း၊ ကောင်းထက်၊ စောထွေး၊ သက်ဝေ နှင့် ဖိုးပြားတို့မှ ဈေးနှုန်းချိုသာစွာဖြင့် အမြန်ဆောင်ရွက်ပေးနေပါပြီ။        
               
@@ -11,9 +14,9 @@
   
    နံနက် ၈ နာရီ မှ ည ၈ နာရီ အထိ (ပိတ်ရက်မရှိ)။
                 
-   ဖုန်း  >  ၀၉ -၇၉ ၅၂၅၄၃၂၀    ၀၉ -၄၂၅၀၂၃၄၅၉    ၀၁-၂၄၀၈၅၈         
+   ဖုန်း   >>   ၀၉ -၇၉ ၅၂၅၄၃၂၀      ၀၉ -၄၂၅၀၂၃၄၅၉      ၀၁-၂၄၀၈၅၈         
 
-အီးမေး > myatdigitalcom6246@gmail.com       
+အီးမေး  >>  myatdigitalcom6246@gmail.com       
 
 
 ![myat-wallpaper](docs/wallpaper.png) 

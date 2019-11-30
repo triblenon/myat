@@ -1,4 +1,4 @@
-# MYAT - Digital Copy And Printings Services      
+# MYAT - Digital Copy And Printing Related Services      
 
 Wooden Rubber Ink Stamps, Notary, Translations, Colour Copy, Graphic Design, Vinyl Printings, Passport Photos.       
 

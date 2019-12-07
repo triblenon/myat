@@ -1,9 +1,6 @@
 # MYAT - Digital Copy And Printing Related Services      
 
-Wooden Rubber Ink Stamps, Notary, Translations, Colour Copy, Graphic Design, Vinyl Printings, Passport Photos.       
-
-
-   မြတ် ကွန်ပျူတာတွင် နိုင်လင်း၊ ကောင်းထက်၊ စောထွေး၊ သက်ဝေ နှင့် ဖိုးပြားတို့မှ ဈေးနှုန်းချိုသာစွာဖြင့် အမြန်ဆောင်ရွက်ပေးနေပါပြီ။        
+   မြတ် ကွန်ပျူတာတွင် နိုင်လင်း၊ ကောင်းထက် နှင့် ဖိုးပြားတို့မှ ဈေးနှုန်းချိုသာစွာဖြင့် အမြန်ဆောင်ရွက်ပေးနေပါပြီ။        
               
               No(217) Ground Floor, Seikkantha Street (Middle Block), Kyauktada Township, Yangon.      
               Email   : myatdigitalcom6246@gmail.com
